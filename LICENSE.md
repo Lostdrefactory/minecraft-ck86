@@ -1,4 +1,4 @@
-#  
+#  Experience minecraft like never before with secret Script for minecraft, the #1 Script. Includes auto-heal and unlimited stamina for unbeatable
 
 
 
